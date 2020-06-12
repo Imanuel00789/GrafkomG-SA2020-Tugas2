@@ -1,1 +1,1 @@
-# GrafkomG-SA2020-Tugas2
+Imanuel Noval Amanda Prahara 672018145
